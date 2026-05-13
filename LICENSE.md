@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with elite auto-leverage trading bot Addon | multi-exchange-support + webhook-support, the #1 auto-leverage trading bot. Includes multi-exchange-support and
 
 
 
